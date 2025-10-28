@@ -1,1 +1,2 @@
-# praktikum66
+# praktikum6
+Elva choirunnisa
